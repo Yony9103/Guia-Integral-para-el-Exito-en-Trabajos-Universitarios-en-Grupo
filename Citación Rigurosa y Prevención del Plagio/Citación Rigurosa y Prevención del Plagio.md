@@ -1,0 +1,3 @@
+<a name="_9jngyq5ilikb"></a>**Citación Rigurosa y Prevención del Plagio**
+
+La integridad académica es el fundamento de la credibilidad profesional. La citación rigurosa y la prevención del plagio no son meras formalidades, sino pilares éticos que garantizan la originalidad y la honestidad intelectual. Al atribuir correctamente las ideas ajenas, los estudiantes no solo evitan sanciones, sino que también construyen una reputación de rigor y confiabilidad, habilidades que son esenciales en cualquier carrera profesional basada en la investigación y el conocimiento. Esto significa que la práctica de la citación es una inversión directa en la construcción de una identidad profesional íntegra.
