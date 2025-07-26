@@ -1,0 +1,13 @@
+# <a name="_v5bmfaq8o4ku"></a>**Oratoria y Habilidades de Presentación**
+
+La oratoria es una habilidad esencial para la empleabilidad. La capacidad de hablar en público con claridad, confianza y persuasión no solo es crucial para el éxito académico, sino que es una competencia altamente valorada en el mercado laboral. Los consejos sobre el control de la voz, el lenguaje corporal, la gestión de los nervios y la adaptación al público demuestran que la oratoria es una habilidad que se puede desarrollar y perfeccionar. Esto implica que la práctica de presentaciones orales en la universidad es una inversión directa en la preparación profesional de los estudiantes, dotándolos de una herramienta poderosa para comunicar sus ideas y proyectos en cualquier contexto futuro.
+
+La preparación es clave. Se debe dedicar tiempo suficiente a la preparación de la presentación, idealmente con semanas de antelación. Es fundamental estructurar la exposición con un guion o escaleta que recoja los puntos fundamentales de forma concisa y organizada. Este guion sirve como ayuda memoria y asegura un hilo conductor claro para la audiencia.
+
+Durante la exposición, es crucial hablar con claridad y un volumen adecuado para que todos los oyentes puedan entender cada palabra. La voz tiene un peso significativo (38%), y el lenguaje corporal es aún más impactante (55%). Se recomienda utilizar gestos que acompañen el discurso y faciliten la comprensión, así como variar el tono de voz para mantener al público comprometido.
+
+El presentador es el protagonista, y las diapositivas son un complemento. Se debe evitar leer las diapositivas; el público espera que se hable del tema, utilizando las diapositivas solo para consultar datos específicos o como apoyo visual. Es importante comentar oralmente los gráficos, explicándolos y analizando las tendencias.
+
+Para controlar los nervios, se puede mirar a alguien de confianza en la audiencia, respirar profundamente y permitirse pausas para recopilar pensamientos. Practicar la presentación frente a un espejo, grabarse en video o ensayar con amigos o familiares ayuda a perfeccionar la exposición. Herramientas como el "Asesor para oradores" de PowerPoint pueden proporcionar retroalimentación sobre el ritmo, el lenguaje inclusivo, el uso de palabras de relleno y la lectura de diapositivas.
+
+Es vital medir el tiempo de la exposición para respetar los límites establecidos, evitando que sea demasiado corta (dejando dudas) o demasiado larga (perdiendo el interés del público). Conocer al público de antemano permite adaptar el mensaje y los ejemplos para generar mayor interés y conexión.
