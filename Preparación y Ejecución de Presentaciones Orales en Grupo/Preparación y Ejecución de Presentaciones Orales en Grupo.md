@@ -1,0 +1,3 @@
+<a name="_rxodt0taz63w"></a>**Preparación y Ejecución de Presentaciones Orales en Grupo**
+
+La presentación oral es la culminación estratégica del trabajo colaborativo. No es solo una exposición de resultados, sino una oportunidad para demostrar el dominio del tema, la cohesión del equipo y la capacidad de comunicar eficazmente. Una presentación bien ejecutada amplifica el impacto del trabajo escrito y refuerza la credibilidad del equipo. Por lo tanto, se debe abordar esta fase con la misma rigurosidad y planificación que el resto del proyecto, reconociendo su papel crucial en la percepción final del trabajo.
